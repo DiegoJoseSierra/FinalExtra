@@ -7,5 +7,5 @@ https://imgur.com/hOVRugt.png
 https://imgur.com/a/yCLGSWY.png
 !["imagen 4"]
 https://imgur.com/a/SSIrW3h.png
-!["imgaen 5"]
+!["imagen 5"]
 https://imgur.com/a/N6KqEMI.png
